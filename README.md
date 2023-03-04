@@ -2,9 +2,8 @@
 
 ![](https://cdn.discordapp.com/attachments/957851604055384137/1075921233713049650/MagicEraser_230216_182228_1_51.png) 
 
-@ __[E](https://ephemeralsys.carrd.co/)PHEMERAL [S](https://ephemeralsys.carrd.co/)YSTEM__ *!* ☆ 
+![](https://wilardo.crd.co/assets/images/gallery04/463254ad.gif?v=587f0c5f) @ __[E](https://ephemeralsys.carrd.co/)PHEMERAL [S](https://ephemeralsys.carrd.co/)YSTEM__ *!* ☆
 
-![](https://wilardo.crd.co/assets/images/gallery04/463254ad.gif?v=587f0c5f)
 **<** **`elysian sys !`** **3**  ![u mean everything to us, love u sm](https://pixelbank.neocities.org/decome/kitties/2e720318.gif)
 
 [**click** to see who's fronting **!**](https://pk.fulmine.xyz/f/gdmev) ☆ [**i**nfo **o**n **h**eadmates **!**](https://rentry.co/ephemeralsystem2)
