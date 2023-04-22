@@ -9,4 +9,7 @@
 ![](https://pixelbank.neocities.org/decome/stars/a84fb90b.gif) [**front pk link** *!*](https://pk.fulmine.xyz/f/gdmev) ![](https://pixelbank.neocities.org/decome/drinks/f7900c6a.gif) [**rentry** *!*](https://rentry.co/ephemeralsystem) ![](https://pixelbank.neocities.org/decome/phones/bcb19285.gif)
 
 ![](https://eridan.crd.co/assets/images/image66.gif?v=c1e2148a)
+
 [**click to read abt loser that copied our shit**](https://rentry.co/bigqewdie)
+
+[**click to educate yourself on null system and starsemble system**](nullandstarsemble)
