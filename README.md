@@ -12,4 +12,4 @@
 
 [**click to read abt loser that copied our shit**](https://rentry.co/bigqewdie)
 
-[**click to educate yourself on null system and starsemble system**](nullandstarsemble)
+[**click to educate yourself on null system and starsemble system**](https://rentry.co/nullandstarsemble)
