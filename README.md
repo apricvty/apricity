@@ -6,6 +6,6 @@
 
 **<** **`elysian sys !`** **3**  ![u mean everything to us, love u sm](https://pixelbank.neocities.org/decome/kitties/2e720318.gif)
 
-![](https://pixelbank.neocities.org/decome/stars/a84fb90b.gif) [**front pk link** *!*](https://pk.fulmine.xyz/f/gdmev) ![](https://pixelbank.neocities.org/decome/drinks/f7900c6a.gif) [**rentry** *!*](https://rentry.co/ephemeralsystem) ![](https://pixelbank.neocities.org/decome/phones/bcb19285.gif)
+![](https://pixelbank.neocities.org/decome/stars/a84fb90b.gif) ![](https://pixelbank.neocities.org/decome/drinks/f7900c6a.gif) [**rentry** *!*](https://rentry.co/ephemeralsystem) ![](https://pixelbank.neocities.org/decome/phones/bcb19285.gif)
 
 ![](https://eridan.crd.co/assets/images/image66.gif?v=c1e2148a)
