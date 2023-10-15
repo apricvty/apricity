@@ -5,5 +5,3 @@
 ![](https://wilardo.crd.co/assets/images/gallery04/463254ad.gif?v=587f0c5f) @ __[E](https://rentry.co/ephemeralsystem)PHEMERAL [S](https://ephemeralsys.carrd.co/)YSTEM__ *!* ☆
 
 **<** **`elysian sys !`** **3**  ![u mean everything to us, love u sm](https://pixelbank.neocities.org/decome/kitties/2e720318.gif)
-
-![](https://eridan.crd.co/assets/images/image66.gif?v=c1e2148a)
